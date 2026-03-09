@@ -1,0 +1,1 @@
+# 241712079_zaskiana-citra_B2_Tugas1_Ai
